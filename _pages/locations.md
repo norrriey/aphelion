@@ -1,0 +1,3 @@
+ULMAE: a city in a valley that boasts a transient population and a wild theatre scene. home of ZERE and DUPRIS
+
+POLAR FOREST: the massive rainforest covering the planet's pole. at the geographic pole is a pit filled with trees in such density that it is totally unnavigatable. in another region, a wide floodplain contains a set of tall, waterlogged trees covered in shelves of ancient fungus, the former headquarters of the world's suns due to its inaccessibility protecting them from aliens and passerby
