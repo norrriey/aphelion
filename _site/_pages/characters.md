@@ -1,0 +1,3 @@
+ZERE: a young woman who comes from a family of superheroes. a few years ago, she left home to travel towards the Pole and settled in ULMAE, a theatrical city that is central to major population hubs and features a transient population for her to blend into.
+
+DUPRIS: a costumer who works at the same theatre ZERE does. also ZERE's girlfriend. the theatre's attack by a potential Type O dyad the same day ZERE gains powers prompts her to suggest they take the subdued alien to a waterlogged portion of the POLAR FOREST, the former headquarters for the world's coronas. 
